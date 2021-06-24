@@ -1,6 +1,6 @@
 - This is  [REDACTED]
 - [REDACTED] is interested in - 
-- [REDACTED] is currently learning - Blockchain Technlogy and Decentralized Finance
+- [REDACTED] is currently learning - Blockchain Technology and Decentralized Finance
 - [REDACTED] is looking to collaborate on - 
 - [REDACTED] can be reached at -
 
